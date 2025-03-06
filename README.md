@@ -40,7 +40,7 @@
 
 ### 🚀 Connect with Me  
 🌎 **Portfolio:** [Coming Soon]  
-📧 **Email:** [your-email@example.com]  
+📧 **Email:** [lokeshthor778@gmail.com]  
 💼 **LinkedIn:** [linkedin.com/in/yallamrajulokesh](https://www.linkedin.com/in/yallamrajulokesh)  
 📂 **GitHub:** [github.com/yallamrajulokesh](https://github.com/yallamrajulokesh)  
 
